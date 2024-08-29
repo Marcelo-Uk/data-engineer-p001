@@ -25,4 +25,4 @@ Este projeto foi uma excelente oportunidade para aplicar conceitos fundamentais 
 
 ## Contato
 
-[Marcelo Uk](www.linkedin.com/in/marcelo-ribeiro-9bb29243)
+www.linkedin.com/in/marcelo-ribeiro-9bb29243
